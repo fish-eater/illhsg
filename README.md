@@ -1,2 +1,3 @@
-# ilovelaylahairsalongame
-I love layla hair salon
+# I Love Layla Hair Salon Game
+
+Become a new master hair salon in this game made by Wyatt Karnes
